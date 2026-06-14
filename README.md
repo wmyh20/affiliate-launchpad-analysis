@@ -1,0 +1,1 @@
+# affiliate-launchpad-analysis
